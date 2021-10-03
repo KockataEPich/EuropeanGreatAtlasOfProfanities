@@ -1,15 +1,69 @@
 ## Bulgaria
-- Lapai mi huia, Duhai mi: Suck my dick	
-- Bit pederast / Pederuga: Faggot
-- Cheren pedal: Nigger faggot
+- Yaj mi kura: Eat my dick
+- Duhai mi : Blow me
+- Lapai mi huia: Suck my dick
+- Pederas / Pederast / Pederuga - Faggot
+- Pedal - Faggot
+- Cheren pedal: Nigger faggot ( To a dark skinned person)
 - Chickidjya / Chikidziq: Wanker
 - Ciganin da te ebe: Be fucked by a gipsy
 - Coochka: Bitch
 - Mamka mu': Fuck
 - Da te eba v guza: Fuck you in the ass
 - Da ti eba maikata: I Fuck your mother	
-- Kopele: Dickhead
+- Kopele: Dickhead (Mostly used in this context, however it also means a bastard)
 - Kuchka: Bitch
-- Shibai se: Fuck yourself
-- Ебал съм ти майката жабарска: I fucked your frog mother (!Translitteration needed)
-- Da ti eba maikata, pederast nedoaten: Fuck your mother, malnourished pederastf
+- Shibai se: Spank yourself
+- Ebal sum ti maikata jabarska: I fucked your frog mother 
+- Da ti eba maikata, pederast nedoklaten: Fuck your mother, malnourished pederast
+- Ciganska rabota: Gypsy work ( when a job is poorly done / something goes wrong)
+- Kon da ta ebe: Hope that a horse fucks you 
+- Na maika ti putkata: Your mother's pussy (mostly used as a response)
+- Riazan turchin: Circumcised turk 
+- Da ti sera na vejdite: I would shit on your eyebrows
+- Da ti sera v ustata: I would shit in your mouth
+- Chalgar dolen: Subhuman listener to chalga
+- Turchin / Ciganin: Turk / Gypsy ( Means the literal etnicities, however is very often used as an insult)
+- Ulichnica: Skank
+- Narkoman: Drug addict
+- Liab: Bread (Used as a derogatory)
+- Baba ti da padne po stulbite: May your grandma fall down the stairs
+- Slab ti e farma: Your farm is weak (Gaming context)
+- Mursho: Rotting corpse  ( Taunting another person)
+- Mishka / Mishok: Rat ( Coward )
+- Karucar: Wagon Driver ( Calling someone uneducated)
+- Seliandur: Peasant
+- Prostak: Dumbass
+- Oligofren: Retard
+- Maloumnik: Idiot, Dumbass
+- Kaun: Melon Head
+- Mutra: Ugly face
+- Mindil: Pushover
+- Putka: Pussy ( Also as a coward)
+- Kreten: Idiot
+- Da ti se iztocha v ustata: I am going to cum in your mouth
+- Zubar: Nerd
+- Pishleme: Small penis ( Derogatory mostly used for little kids that act inappropriately) 
+- Drislio / Lainar: Shitter 
+- Shti go turq: Im going to put it
+- Meka kitka: Soft palm ( To a weak man, can also mean a faggot)
+- Liglio / Ligla: Spoiled / Spoiled (feminine) 
+- Tapak:  Idiot
+- Groznik:  ugly
+- Majdramunqk:  Untranslatable
+- Osoinica:  Snake ( Evil minded woman that uses trickery to cause pain)
+- Intrigant:  Gossiper
+- Kurvar:  Fuckboy
+- Magare:  Donkey
+- Slabak:  Weak pearson
+- Kopeldak: Dickhead (Variation of Kopele)
+- Pumak: Muslim Bulgarian who doesn't turkish
+- Kifla: Sassy girl
+- Kurec: Dick
+- Glezlyo: Spoiled brat 
+- Svinya: Pig
+- Prostak: Simpleton
+- Maimunqk: Monkey
+- Shmatka: Schmuck
+- Mastiya: Bitch, Whore
+- Da ti go nachukam: I am going to hammer it in
